@@ -7,7 +7,7 @@
 
 -estou procurando ajudar meu amigo a fazer pen spinning🖊️
 
--pergunteme sobre dark souls e eu irei responder⚔️
+-pergunteme sobre Dark Souls e eu irei responder⚔️
 
 -uma curiosidade sou viciado em jogos🎮
 
